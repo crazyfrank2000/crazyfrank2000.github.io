@@ -1,1 +1,1 @@
-![](photo-with-title.png)
+![](avatar.jpeg)
