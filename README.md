@@ -7,7 +7,7 @@
 ### 书籍
 
 > * [自学是门手艺](/the-craft-of-selfteaching/)
-> * [微信互联网平民创业 —— 踏踏实实赚钱，开开心心生活](https://item.jd.com/12759217.html)
+> * [上海通阜贸易有限公司](http://www.twinkle-trade.com/)
 
 ### 开源书籍及其他文章
 
